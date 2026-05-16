@@ -1,4 +1,4 @@
-
+Enhance your Hide.me experience with Hide.me custom Client: money-back-guarantee & static-IP, the #1 client. Includes money-back-guarantee and static-IP for a safer and more
 
 
 
